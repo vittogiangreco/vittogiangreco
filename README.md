@@ -2,5 +2,4 @@
 #me gusta el rugby y futbol
 #me gusta el rock y trap
 #tengo 17 años
-
-![image]https://www.google.com/search?q=lo+quiero+mucho+profe&oq=lo+quiero+mucho+profe&gs_lcrp=EgZjaHJvbWUyBggAEEUYOdIBCDM3OTJqMGo0qAIBsAIB&client=ms-android-xiaomi-rvo3&sourceid=chrome-mobile&ie=UTF-8#vhid=7M3URifbC5MVwM&vssid=l
+![image](https://github.com/vittogiangreco/vittogiangreco/assets/171263342/39b6066b-569a-431c-a525-0c61d95a45ed)
