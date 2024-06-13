@@ -18,6 +18,6 @@ Estudiar policia aeropuertaria
 ___
 ··· Proyecto Destacado 1: [swag]
 
-![image](https://www.freepik.es/vector-gratis/cute-dibujos-animados-perro-salchicha_11291583.htm#query=perro%20salchicha&position=0&from_view=keyword&track=ais_user&uuid=ac0fbf61-d161-4a26-b098-f58764bd1965)
+![image](https://img.freepik.com/vector-gratis/cute-dibujos-animados-perro-salchicha_138676-2313.jpg?w=1060&t=st=1718286972~exp=1718287572~hmac=e1cf60a3467bb90e8228c7caa50a87d8a2166f2ca9b243e9a0b584591d2fd452)
 
 ··· Gracias por venir hasta aca
