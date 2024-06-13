@@ -18,6 +18,6 @@ Estudiar policia aeropuertaria
 ___
 ··· Proyecto Destacado 1: [swag]
 
-![image](https://media.giphy.com/media/wYSfVDXJ1NDYjORDa8/giphy.gif?cid=790b7611xr2ed8rnmubggg014di0dwk8poijtt0bunf8dc94&ep=v1_gifs_search&rid=giphy.gif&ct=g)
+![image](https://www.google.com/search?client=ms-android-xiaomi-rvo3&sca_esv=e7617bef498b6903&sxsrf=ADLYWIL7uTGoWUEpryHY3B00T2w797mbAw:1718020292373&q=perro+salchicha+png&tbm=isch&source=lnms&prmd=isvnmbtz&sa=X&ved=2ahUKEwjysPmp_NCGAxVQG7kGHZ4nAeEQ0pQJegQIChAB&biw=393&bih=1076&dpr=2.75#imgrc=t7TYihwRZh0UMM)
 
 ··· Gracias por venir hasta aca
