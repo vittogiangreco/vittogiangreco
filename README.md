@@ -18,6 +18,6 @@ Estudiar policia aeropuertaria
 ___
 ··· Proyecto Destacado 1: [swag]
 
-![image](https://github.com/Markonias/Markonias/assets/88219069/56ea58dc-d3fc-4ee2-b1f1-af4a0cf44a94)
+![image](https://media.giphy.com/media/wYSfVDXJ1NDYjORDa8/giphy.gif?cid=790b7611xr2ed8rnmubggg014di0dwk8poijtt0bunf8dc94&ep=v1_gifs_search&rid=giphy.gif&ct=g)
 
 ··· Gracias por venir hasta aca
