@@ -18,6 +18,6 @@ Estudiar policia aeropuertaria
 ___
 ··· Proyecto Destacado 1: [swag]
 
-![image](https://www.google.com/search?client=ms-android-xiaomi-rvo3&sca_esv=e7617bef498b6903&sxsrf=ADLYWIL7uTGoWUEpryHY3B00T2w797mbAw:1718020292373&q=perro+salchicha+png&tbm=isch&source=lnms&prmd=isvnmbtz&sa=X&ved=2ahUKEwjysPmp_NCGAxVQG7kGHZ4nAeEQ0pQJegQIChAB&biw=393&bih=1076&dpr=2.75#imgrc=t7TYihwRZh0UMM)
+![image](https://www.freepik.es/fotos-vectores-gratis/perro-salchicha)
 
 ··· Gracias por venir hasta aca
